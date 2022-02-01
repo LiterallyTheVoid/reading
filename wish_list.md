@@ -1,4 +1,4 @@
 # Wishlist
 
-*The Uses of Pessimism: And the Danger of False Hope* by Roger Scruton
-*Reasons and Persons* by Derek Parfit
+*The Uses of Pessimism: And the Danger of False Hope* by Roger Scruton  
+*Reasons and Persons* by Derek Parfit  
